@@ -1,0 +1,1 @@
+# HypeSquad-Badge-Claim-Script
